@@ -18,7 +18,9 @@ _"If you're asking me about a scene that definitely stole my attention, let me t
 ![image](https://github.com/user-attachments/assets/9f4d4670-d50c-48ba-91f4-897c94c9036c)
 
 ## The Famous Quote
+
 _"With great power comes with great responsibility."_ 
+
 ![image](https://github.com/user-attachments/assets/71843f99-67b0-4234-8541-c4ada3b3e7f9)
 Aunt May in _Spider-Man: No Way Home (2021)_
 

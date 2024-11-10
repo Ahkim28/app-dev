@@ -7,7 +7,7 @@
 For the first time in the cinematic history of Spider-Man, our friendly neighborhood hero's identity is revealed, bringing his Super Hero responsibilities into conflict with his normal life and putting those he cares about most at risk. When he enlists Doctor Strange's help to restore his secret, the spell tears a hole in their world, releasing the most powerful villains who’ve ever fought a Spider-Man in any universe. Now, Peter will have to overcome his greatest challenge yet, which will not only forever alter his own future but the future of the Multiverse.
 
 ## The Cast
-![image](https://github.com/user-attachments/assets/2217ff20-5a28-4cb5-bed1-be4568342272)
+  ![image](https://github.com/user-attachments/assets/2217ff20-5a28-4cb5-bed1-be4568342272)
 
 The film stars Tom Holland as Peter Parker/Spider-Man, Zendaya as Michelle Jones, Benedict Cumberbatch as Stephen Strange/Doctor Strange, Jacob Batalon as Ned Leeds, Jon Favreau as Happy Hogan, Jamie Foxx as Max Dillon/Electro, Willem Dafoe as Norman Osborn/Green Goblin, Alfred Molina as Otto Octavius/Doctor Octopus, Benedict Wong as Wong, Tony Revolori as Flash Thompson, Marisa Tomei as May Parker, Andrew Garfield as Peter Parker/Spider-Man, and Tobey Maguire as Peter Parker/Spider-Man.
 
@@ -20,8 +20,7 @@ _"If you're asking me about a scene that definitely stole my attention, let me t
 ## The Famous Quote
 _"With great power comes with great responsibility."_ - by Uncle Ben & Aunt May before their death.
 
-![image](https://github.com/user-attachments/assets/db04d7d4-6cbe-4f9f-85b4-ff1b4a430d4e)
-![image](https://github.com/user-attachments/assets/71843f99-67b0-4234-8541-c4ada3b3e7f9)
+![image](https://github.com/user-attachments/assets/db04d7d4-6cbe-4f9f-85b4-ff1b4a430d4e) ![image](https://github.com/user-attachments/assets/71843f99-67b0-4234-8541-c4ada3b3e7f9)
 
 
 ## Did You Know?

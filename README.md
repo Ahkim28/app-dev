@@ -9,3 +9,6 @@ The film stars Tom Holland as Peter Parker/Spider-Man, Zendaya as Michelle Jones
 
 ## My Favorite Scene in the Movie
 _"If you're asking me about a scene that definitely stole my attention, let me tell you, it's gotta be the best of all in every Spider-Man movie entries in different universes. So what's my favorite scene in the movie? Definitely the scene where Andrew Garfield's Spider-Man saved Tom Holland's Spider-Man's MJ. Everybody could feel the emotions brought by that scene. Just like other movie goers, I screamed and celebrated for his redemption at that very moment. Spider-Man (Andrew) was one step too late from saving his MJ, precisely, Gwen Stacy, in his own universe. He felt the same desperation as the other Spider-Man (Tom) to save his own MJ from falling to her death. That's the least he can do for the younger Spider-Man to avoid experiencing the same nightmare as he did in his world."_
+
+## The Famous Quote
+_"With great power comes with great responsibility."_ - by Uncle Ben & Aunt May 

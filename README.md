@@ -12,3 +12,9 @@ _"If you're asking me about a scene that definitely stole my attention, let me t
 
 ## The Famous Quote
 _"With great power comes with great responsibility."_ - by Uncle Ben & Aunt May 
+
+## The Movie Trivia
+1. Benedict Cumberbatch admitted to not reading the full script, wanting to surprise himself with the final product.
+2. J.K. Simmons had enjoyed playing J. Jonah Jameson in Sam Raimi's Spider-Man Trilogy, and admitted to being heartbroken that he wouldn't be able to revisit the character in a fourth movie. Naturally, when Marvel approached him to reprise his role in Spider-Man: Far from Home (2019)'s stinger and this film, he jumped at the chance. Simmons also expressed excitement in adapting Jameson to the modern-day era, describing him more as a media blowhard than a newspaper editor. To make up for the fact that his character was now bald, Simmons insisted on keeping Jameson's cigar and mustache for this film, due to wanting to have some aspects from his portrayal in Sam Raimi's trilogy to carry over in the MCU.
+3. For his appearance in the film, Alfred Molina was digitally de-aged to make him appear as he had in Spider-Man 2 (2004) and his mechanical tentacles were created through CGI, rather than through puppetry like in his first film.
+4. Jamie Foxx and Willem Dafoe were very excited to play their respective villains again. Foxx in particular was pleased that he wasn't going to be blue this time. Alfred Molina, meanwhile, joked that he was only in it for the paycheck before confirming that he liked the story a lot before signing on.
